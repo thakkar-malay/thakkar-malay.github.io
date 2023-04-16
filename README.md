@@ -1,1 +1,0 @@
-# thakkar-malay.github.io
